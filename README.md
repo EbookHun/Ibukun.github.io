@@ -1,4 +1,4 @@
-👋 Hi, I’m @Ibukun-Adeleye
+👋 Hi, I’m Ibukun Adeleye
 
 🌱 I’m interested in Marketing Analytics Solutions
 
