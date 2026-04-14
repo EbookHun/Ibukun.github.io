@@ -1,5 +1,5 @@
-👋 Hi, I’m Ibukun
+Hi, I’m Ibukun
 
-🌱 I’m interested in Marketing Analytics Solutions
+I enjoy visiting art galleries, and taking nature walks.
 
-📫 You can reach me at https://www.linkedin.com/in/ibukunadeleye1/
+Check out my portfolio. You can also reach me at https://www.linkedin.com/in/ibukunadeleye1/
